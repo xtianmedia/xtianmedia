@@ -1,4 +1,4 @@
-👋 Hi there, I’m @christian-eze
+👋 Hi there, I’m Christian Eze
 
 👀 I’m interested in front end web development technoloy.
 
