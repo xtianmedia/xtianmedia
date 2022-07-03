@@ -6,7 +6,7 @@
 
 💞️ I’m looking to develop myself more with regular practice.
 
-📫 You can reach me on twitter @xtianmedia
+📫 You can reach me on any of social media platform @xtianmedia
 
 ⚡ I'm tech-ful.
 
