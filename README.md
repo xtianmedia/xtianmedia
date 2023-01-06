@@ -2,7 +2,7 @@
 
 👀 I’m interested in front end web development technoloy.
 
-🌱 I’m currently learning html, css, javascript.
+🌱 I’m currently learning Html, Css, Javascript and React Js.
 
 💞️ I’m looking to develop myself more with regular practice.
 
