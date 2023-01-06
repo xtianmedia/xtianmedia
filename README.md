@@ -10,4 +10,4 @@
 
 ⚡ I'm tech-ful.
 
-![m](https://user-images.githubusercontent.com/102808500/176751933-8a6089d3-59cd-44e8-823f-da723a15811c.jpg)
+![cover](https://user-images.githubusercontent.com/102808500/211041178-97e4b897-dc54-4abc-9b60-6b899e9dc103.jpg)
